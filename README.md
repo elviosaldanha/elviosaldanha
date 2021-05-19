@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @elviosaldanha
+- 👀 I’m interested: in programs, programming and more
+- 🌱 I’m currently: interested in learning everything
+- 💞️ I’m looking to collaborate on: i don't know yet, because I'm a beginner in programming
+- 📫 How to reach me: facebook.com/elviosaldanha - twiiter.com/elviosaldanha - instagram.com/elviosaldanha
